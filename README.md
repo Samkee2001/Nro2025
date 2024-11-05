@@ -1,2 +1,3 @@
 # Nro20242025
-to je samo vaja
+Martin Samec
+23211337
