@@ -1,3 +1,3 @@
-# Nro20242025
+
 Martin Samec
 23211337
